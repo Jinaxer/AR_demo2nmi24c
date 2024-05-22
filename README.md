@@ -1,1 +1,0 @@
-# AR_demo2nmi24c
